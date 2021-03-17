@@ -1,0 +1,1 @@
+# ekip-7-inceleme
